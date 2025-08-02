@@ -22,7 +22,7 @@ Version Control: Git, GitHub
 ### 🚀 Projects: Coming soon!  
   
 
-#### 📊 GitHub Stats: Coming soon!    
+### 📊 GitHub Stats: Coming soon!    
    
 
 ### ✨ Fun Fact:  
