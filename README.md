@@ -26,4 +26,4 @@ Version Control: Git, GitHub
    
 
 ### ✨ Fun Fact:  
-I have two tuxedo cats that I love more than anything in the world. I spend majority of my free time going on long walks in a park or reading a fantasy book. My go-to sweet treat is an iced oatmilk vanilla latte with an almond croissant.   
+I have two tuxedo cats that I love more than anything in the world. I spend majority of my free time going on long walks in a park or reading a fantasy book. I also love games for the mind. I play an insane amount of Sudoku every single day (I sometimes dream about it) and I love doing diamond art kits. My go-to sweet treat is an iced oatmilk vanilla latte with an almond croissant.   
